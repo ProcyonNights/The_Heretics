@@ -1,0 +1,1 @@
+Must dock here and shuttle planetside. Guild of Engineers controlled.

@@ -1,0 +1,1 @@
+Manufacturing planet. Thick clouds. Surface is either cities or toxic industrial wastelands. Moons: None. Consumed for materials.
